@@ -1,1 +1,1 @@
-# NCC-Advanced-Training-2021-
+# NCC-Advanced-Training-2021
